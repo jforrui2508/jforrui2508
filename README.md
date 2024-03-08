@@ -13,9 +13,9 @@ Sobre Mí
 - 📫 How to reach me: Java
 - ⚡ Fun fact: Java
 
-Image:
+GOAT
 
 ![](LaCabra.jpg)
 
-> Follow your heart.
+> LA CABRA LA CABRA LA CABRA LA KINS LI LA KINS LI LA CABRA CHIQUIBAI
 
