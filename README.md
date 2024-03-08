@@ -1,6 +1,6 @@
-## Hi there 👋
+## Not Main Teemo Here👋
 
-**jforrui2508/jforrui2508** es un ✨ _repositorio especial_ ✨ because its `README.md` (this file) appears on your GitHub profile.
+**jforrui2508/jforrui2508** es un ✨ _repositorio especial_ ✨ donde no encontrarás a un main teemo
 
 Sobre Mí
 =============
@@ -18,4 +18,11 @@ GOAT
 ![](LaCabra.jpg)
 
 > LA CABRA LA CABRA LA CABRA LA KINS LI LA KINS LI LA CABRA CHIQUIBAI
+
+El Fucking Diablo
+
+![](Teemo_14.jpg)
+
+> 😈😈😈🥵🥵🥵
+
 
